@@ -1,5 +1,5 @@
-~Hi there:)
-I'm @mahdiyar1385🖐
+-Hi there:)
+-I'm @mahdiyar1385🖐
 Programmer ~ UI / UX Designer💻
 I know PHP, JS, programming language🙆‍♂️
 And also C#...
